@@ -1,4 +1,4 @@
-# Poster-designing-task-1
+# Graphic-designing-all-task-
 #logo design
 #Buisness card design
 #infobyte 
